@@ -1,3 +1,3 @@
-# zhangzhehua.github.io
+# Pages
 
 Hi
